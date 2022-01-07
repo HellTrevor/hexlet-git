@@ -1,1 +1,0 @@
-Nastusha, my girl!
